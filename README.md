@@ -1,1 +1,1 @@
-# 12AMyYouth School.
+# 12AMyYouth.
